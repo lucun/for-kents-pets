@@ -17,8 +17,9 @@ kent s pets timestamps
         - https://www.youtube.com/live/3V5reLfPsek?si=vWt4U_PHgJqBXvmL&t=1330
 
 
+## Doggos and Cattos
 
-## Bubba/Miki/Wellington lore:
+- Bubba/Miki/Wellington lore:
     - Story of how Ame met Wellington
         - https://www.youtube.com/live/icT5nkMuo_s?si=5jPrWRnOqy3oU608&t=9513
     - Miki's feet smell like fritos and Miki looks like a dorito
