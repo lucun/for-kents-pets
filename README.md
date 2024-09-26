@@ -6,6 +6,8 @@ kent s pets timestamps
 - 2021
     - Ame got shrimp!
         - https://www.youtube.com/live/et8HYdSoQ-Q?si=nX_ewN0SB8G64bhX&t=678
+    - Fish tank pic reveal publicly, with yellow shrimp and tetras
+        - https://www.youtube.com/live/et8HYdSoQ-Q?si=yr5RpRhcCG6h54Ze&t=5442
 - 2022
     - New fresh water big orange guppy. cute face and color scheme. Only has 4 fish right now
         - https://www.youtube.com/live/AFDKegTb6Js?si=CSNnsAGjf80IaoM_&t=2187
@@ -15,9 +17,29 @@ kent s pets timestamps
         - https://www.youtube.com/live/f3zWbV4joAE?si=yws247YRybSa6oxz&t=9380
     - New fish tank, kept 5-7 shrimps to the new house.
         - https://www.youtube.com/live/3V5reLfPsek?si=vWt4U_PHgJqBXvmL&t=1330
+    - Ame started seenig baby shrimps!
+        - https://www.youtube.com/live/_2jtFfRfGA4?si=5rLF0gbMGcBL8ieC&t=818 
+    - I think the sea urchin was introduced in members? She publicly talked about it stressed out and gooing. later... 1 fish went missing
+        - https://www.youtube.com/live/zDGVtItJZiA?si=gpRI03HvljnwPePn&t=3195
+    - Ame's shrimp ripped apart a fly that got stuck in the tank. Started seeng more different color baby shrimp. Ame might buy more to collect them all, but her tank might be getting crowded.
+        - https://www.youtube.com/live/rhCC-uawQy8?si=AJ-nZwje5hSe7ig8&t=555
+    - Ame got 2 frogs!
+        - https://www.youtube.com/live/k0y6CCzztqQ?si=1QT-pu2R2JdsNT4t&t=482
+    - Got a pea puffer fish, Catalina. (was first mentioned on twitch)
+        - First YT mention + pic: https://www.youtube.com/live/JVLOv98s4fs?si=4KzwPodHQNzPQgoe&t=565
+    - RIP Catalina
+        - https://www.youtube.com/live/e30op9rn3yA?si=1gJsgznYOwKpHdEU&t=11026
+- 2023
+    - Sea urchin not doing too good
+        - https://www.youtube.com/live/YSW1OWFmBT4?si=rm-7kYY7BtKh8ey6&t=7255
+- 2024
+    - Ame can't find her last frog (Idk when she lost the 1st one)
+        - https://www.youtube.com/live/4NFnYmf4ar0?si=2LzR5Odj9LYaxXjj&t=4923
+    - Last frog found, but did not survive the move
+        - https://www.youtube.com/live/y3QpnBzetJ4?si=uyqZ3oyHcgFHyWQw&t=7085
 
 
-## Doggos and Cattos
+## Doggos and Cattos and etc
 
 - Bubba/Miki/Wellington lore:
     - Story of how Ame met Wellington
@@ -62,12 +84,19 @@ kent s pets timestamps
     - Henry was trying to catch Ame's fish
         - https://www.youtube.com/live/AFDKegTb6Js?si=nk0iYM_NwkZ1MKR3&t=2350
 - Move in with Watson Fam
+    - Ame reveals bird 1 and bird 2, 2 Watson Family parakeets
+        - https://www.youtube.com/live/_Ar8e6OYdXc?si=78m6x7Mn4x54xXlR&t=11480
     - Henry been stealing another Watson Family cat's food and wrestles it (yaoi?)
         - https://www.youtube.com/live/ZBuwAGUJpbI?si=BQ23lwqvgQ0okocg&t=3378
+    - Watson Family has 2 cats. Ghirardelli = orange chonky cat with pug-like buggy eyes
+        - 8/15 karaoke was unarchived... oof
 
 
-## Tomagachi:
-- Does this count?
+## Kiara's Flower Bug:
+
+- Arrived at Ame's via flowers that Kiara gifted her
+- Released in the wild by Feb 2022
+
 
 ## No-lore tidbits, fun stories, or other animals idk
 
