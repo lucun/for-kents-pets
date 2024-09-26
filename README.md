@@ -86,10 +86,10 @@ kent s pets timestamps
 - Move in with Watson Fam
     - Ame reveals bird 1 and bird 2, 2 Watson Family parakeets
         - https://www.youtube.com/live/_Ar8e6OYdXc?si=78m6x7Mn4x54xXlR&t=11480
-    - Henry been stealing another Watson Family cat's food and wrestles it (yaoi?)
-        - https://www.youtube.com/live/ZBuwAGUJpbI?si=BQ23lwqvgQ0okocg&t=3378
     - Watson Family has 2 cats. Ghirardelli = orange chonky cat with pug-like buggy eyes
         - 8/15 karaoke was unarchived... oof
+    - Henry been stealing another Watson Family cat's food and wrestles it (yaoi?)
+        - https://www.youtube.com/live/ZBuwAGUJpbI?si=BQ23lwqvgQ0okocg&t=3378
 
 
 ## Kiara's Flower Bug:
